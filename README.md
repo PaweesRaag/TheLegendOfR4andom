@@ -12,7 +12,7 @@ But the **legend lives on**, and now you can witness it too.
 ⚡️ **Brace yourself for one of the rawest, realest, reverse engineering relics** ever crafted.  
 **This is history. This is legacy. This is binary art.**
 
-🔗 [**THE SACRED BYTE SCROLL**](https://drive.google.com/file/d/1khJ_uVvJAX73utQqcAEN5E80koonXzKN/view?usp=sharing)
+🔗 [**THE SACRED BYTE SCROLL**](https://forum.tuts4you.com/files/file/1308-the-legend-of-r4ndom-tutorials/)
 
 ---
 
